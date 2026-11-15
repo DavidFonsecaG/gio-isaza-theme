@@ -1,0 +1,1 @@
+C:/Users/David Fonseca/Projects/gio-isaza-theme/AGENTS.md
